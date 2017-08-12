@@ -1,1 +1,3 @@
 # Vorducas.github.io
+
+I HAVE NO IDEA WHAT IM DOING SEND HELP
